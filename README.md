@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nbc29th
-- 👀 I’m interested in greeting some true answers
+- 👀 I’m interested in gretting some true answers
 - 🌱 I’m currently learning to not be a fool 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 4293983A@ gmail.com
